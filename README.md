@@ -27,3 +27,13 @@
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/65129e55-d891-497e-bedd-d93849294d8a" />
 
+<p align="center"> ${\textsf{\color{#40505c} 　　𓏵 　𓈓 op . I LOVE MY   ⨟ ALPHA / BRAVO SQUAD!! 　 }}$
+<p align="center"> ${\textsf{\color{#2a3d4a}   ୧  find me on the safe/safe spanish server . rblx zone  ᡣ𐭩  　୨ 　　 }}$
+
+
+<div align="center">
+  
+  [strawpage](https://vitaly.straw.page/)${\textsf{\color{#1d2d38} 　　. send me gimmicks ✚𓎟 }}$
+  </div>
+
+  <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/4976829a-a3f0-48ea-a014-30ec2b9fa726" />
