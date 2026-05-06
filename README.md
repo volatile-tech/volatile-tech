@@ -2,7 +2,7 @@
 
 <p align="center"> ${\textsf{\color{#40505c} ⸸  ִ   matty　　vit or jam   ་ ⠀ 𓏏𓏏  ¹5yo　★　 Ꮚ }}$
 <p align="center"> ${\textsf{\color{#2a3d4a} non-binary (pansexual)  ━━╋　 ﾉ they }}$
-<p align="center"> ${\textsf{\color{#1d2d38} ⌕　ISFP-T +　　20 | 07 | 25 (luvs u emmet)　　ᛝ }}$
+<p align="center"> ${\textsf{\color{#1d2d38} ⌕　ISFP-T +　　I LOVE MY BSFF!! HES THE BEST　　ᛝ }}$
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31d3grxmpkz6vcy3cgjunl4hstca&redirect=true">
